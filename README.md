@@ -10,7 +10,7 @@ Mapping networks with Jeffrey Epstein as the anchor node. And guess what? Each o
 
 ## JPG
 
-![](https://raw.githubusercontent.com/araguaci/darknetwork/refs/heads/main/epstein.jpg)
+![](https://raw.githubusercontent.com/araguaci/darknetwork/refs/heads/main/epstein.jpeg)
 
 ---
 🚨 PRÉVIA: PROTÓTIPO DE PESQUISA DE PESSOAS 🚨
